@@ -4,5 +4,5 @@
 4. half cup oil
 5. half cup milk
 6. half teaspoon baking soda
-7. one teaspoon bakihng powder
+7. one teaspoon baking powder
 8. vanilla essence
