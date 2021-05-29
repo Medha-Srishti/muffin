@@ -1,0 +1,2 @@
+This is a recipe on how to make delicious cute muffins!! 
+note: if you have frosting or whipped cream, you can just spread it on the muffin, and.. VOILA! Cupcakes!! You can decorate them however you want! This recipe includes the ingredients and steps required to make a muffin. 
